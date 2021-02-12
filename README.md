@@ -1,3 +1,0 @@
-# Yong Zhang
-
-### Hello
